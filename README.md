@@ -1,5 +1,5 @@
 # Emblems
-The emblems we currently venerate demean all lives especially, lives of non-christian, black, indiginous and coloured peoples!
+The emblems we currently venerate demean all lives especially, lives of non-christian, black, indigenous and coloured peoples!
 
 ## All lives matter and especially, black lives matter
 
@@ -17,8 +17,10 @@ The values we enshrine in our public spaces represent the truth we hold in our i
 
 ---
 
-#SereneSolidarity #SS #NotMyQueen :middle_finger: :smile: :middle_finger: : https://upload.wikimedia.org/wikipedia/commons/b/bf/Victoria_Park%2C_Statue_of_Queen_Victoria_Kitchener_142636.jpg
+#SereneSolidarity #SS #NotMyQueen :middle_finger: :smile: :middle_finger: : 
 
-Also see: Just Ice --> https://youtu.be/NtAAeyswlHM
+  - https://upload.wikimedia.org/wikipedia/commons/b/bf/Victoria_Park%2C_Statue_of_Queen_Victoria_Kitchener_142636.jpg
+
+  - Just Ice --> https://youtu.be/NtAAeyswlHM
 
 ![alt text](https://cdn.vox-cdn.com/thumbor/pGTW7V-cKoyt7I72N-2qUmKRU4Y=/0x0:840x300/720x0/filters:focal(0x0:840x300):format(webp):no_upscale()/cdn.vox-cdn.com/uploads/chorus_asset/file/4027016/all%20lives%20matter%20cartoon.png)
