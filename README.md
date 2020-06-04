@@ -9,7 +9,7 @@ The depiction of Queen Elisabeth II in Victoria Park, Kitchener, ON, CA is a mer
 
 The cannon placed in front of the lion is reminiscent of a merchentile slave ship's cannons! This cannon is pointed at the face of drivers coming upto the bend to "warn" them of their inferior position and to submit to their master - the crown of England. 
 
-Prior to the British Empire's emblems the city of Kitchener was called Berlin and hosted the erstwhile German Empire's emblems. If the rascist German Empire's emblems were removed and the city was renamed Kitchener in honour of [the genocidal Kitchener of Khartoum](https://en.wikipedia.org/wiki/Herbert_Kitchener,_1st_Earl_Kitchener) then it is certainly high time that the flatulent British Empire's racist and denegrading embelems be removed from public view. 
+Prior to the British Empire's emblems the city of Kitchener was called Berlin and hosted the erstwhile German Empire's emblems. If the rascist German Empire's emblems were removed and the city was renamed Kitchener in honour of [the genocidal Kitchener of Khartoum](https://en.wikipedia.org/wiki/Herbert_Kitchener,_1st_Earl_Kitchener) then it is certainly high time that the flatulent British Empire's racist and degrading embelems be removed from public view. 
 
 See: https://www.cbc.ca/news/canada/kitchener-waterloo/10-facts-about-the-mystery-of-the-missing-kaiser-s-bust-1.2740729
 
