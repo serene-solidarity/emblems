@@ -17,7 +17,7 @@ The values we enshrine in our public spaces represent the truth we hold in our i
 
 ---
 
-#SereneSolidarity #SS #NotMyQueen :middle_finger: :smile: :middle_finger : https://upload.wikimedia.org/wikipedia/commons/b/bf/Victoria_Park%2C_Statue_of_Queen_Victoria_Kitchener_142636.jpg
+#SereneSolidarity #SS #NotMyQueen :middle_finger: :smile: :middle_finger: : https://upload.wikimedia.org/wikipedia/commons/b/bf/Victoria_Park%2C_Statue_of_Queen_Victoria_Kitchener_142636.jpg
 
 Also see: Just Ice --> https://youtu.be/NtAAeyswlHM
 
