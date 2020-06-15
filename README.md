@@ -3,7 +3,7 @@ The emblems we currently venerate demean all lives especially, lives of non-chri
 
 ## All lives matter and especially, black lives matter
 
-The depiction of Queen Elisabeth II in Victoria Park, Kitchener, ON, CA is a mere instance of how deeply racism is baked into our society. The statue emblematically represents the dominance of a well-fed, white, anglosaxon, aristrocat over the fallen flag of the peoples whose emblem used to be the African Lion. The position of the statue's arm with its Christianized sceptor dominating a "wild lion" (the African diaspora) shows how the lion has been tamed into submission throughout the world by the prowess of the mighty queen of England and the ingenuity of "the civilized English diaspora".  
+The depiction of Queen Elisabeth II in Victoria Park, Kitchener, ON, CA is a mere instance of how deeply racism is baked into our society. The statue emblematically represents the dominance of a well-fed, white, anglosaxon, aristocrat over the fallen flag of the peoples whose emblem used to be the African Lion. The position of the statue's arm with its Christianized sceptor dominating a "wild lion" (the African diaspora) shows how the lion has been tamed into submission throughout the world by the prowess of the mighty queen of England and the ingenuity of "the civilized English diaspora".  
 
 ![alt text](https://whoacanada.files.wordpress.com/2011/05/victoriapark3.jpg "Venerated emblems of atrocities committed against non-anglosaxon peoples")
 
@@ -19,8 +19,8 @@ The values we enshrine in our public spaces represent the truth we hold in our i
 
 #SereneSolidarity #SS #NotMyQueen :middle_finger: :smile: :middle_finger: : 
 
-  - https://upload.wikimedia.org/wikipedia/commons/b/bf/Victoria_Park%2C_Statue_of_Queen_Victoria_Kitchener_142636.jpg
+  - [Queen Victoria Statue, Kitchener, ON, CA](https://upload.wikimedia.org/wikipedia/commons/b/bf/Victoria_Park%2C_Statue_of_Queen_Victoria_Kitchener_142636.jpg)
 
-  - Just Ice --> https://youtu.be/NtAAeyswlHM
+  - Need Just Ice --> https://youtu.be/NtAAeyswlHM
 
-![alt text](https://cdn.vox-cdn.com/thumbor/pGTW7V-cKoyt7I72N-2qUmKRU4Y=/0x0:840x300/720x0/filters:focal(0x0:840x300):format(webp):no_upscale()/cdn.vox-cdn.com/uploads/chorus_asset/file/4027016/all%20lives%20matter%20cartoon.png)
+> ![alt text](https://cdn.vox-cdn.com/thumbor/pGTW7V-cKoyt7I72N-2qUmKRU4Y=/0x0:840x300/720x0/filters:focal(0x0:840x300):format(webp):no_upscale()/cdn.vox-cdn.com/uploads/chorus_asset/file/4027016/all%20lives%20matter%20cartoon.png)
