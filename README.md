@@ -8,7 +8,7 @@ The depiction of Queen Elisabeth II in Victoria Park, Kitchener, ON, CA is a mer
 ![Queen Victoria II Statue](https://whoacanada.files.wordpress.com/2011/05/victoriapark3.jpg)
 
 
-The cannon placed in front of the lion is reminiscent of a merchentile slave ship's cannons! This cannon is pointed at the face of drivers coming upto the bend to "warn" them of their inferior position and to submit to their master - the crown of England. 
+The cannon placed in front of the lion is reminiscent of a mercantile slave ship's cannons! This cannon is pointed at the face of drivers coming upto the bend to "warn" them of their inferior position and to submit to their master - the crown of England. 
 
 Prior to the British Empire's conquest of Canada the city of Kitchener was called Berlin. It hosted the erstwhile German Empire's emblems with the bust of Kaiser Wilhelm I displayed in what is now called Victoria Park as shown in the picture below. 
 
@@ -16,7 +16,7 @@ Prior to the British Empire's conquest of Canada the city of Kitchener was calle
 ![Kaiser Wilhelm I](https://i.cbc.ca/1.2743092.1408642933!/fileImage/httpImage/image.jpg_gen/derivatives/original_1180/kaiser-s-bust.jpg)
 
 
-If the rascist German Empire's emblems were removed and the city was renamed Kitchener then it is certainly high time that the decaying British Empire's racist and degrading embelems be removed from public view. 
+If the racist German Empire's emblems were removed and the city was renamed Kitchener then it is certainly high time that the decaying British Empire's racist and degrading emblems be removed from public view. 
 
 Sadly Berlin, Ontario Canada was renamed Kitchener, Ontario, Canada in recognition of **the genocidal Kitchener of Khartoum**. Our city venerates his murderous conquests in North and East Africa that promoted concertration camps and slavery.  
 
