@@ -3,9 +3,9 @@ The emblems we currently venerate demean all lives especially, lives of non-chri
 
 ## Especially Black Lives Matter
 
-The depiction of Queen Elisabeth II in Victoria Park, Kitchener, ON, CA is a mere instance of how deeply racism is baked into our society. The statue emblematically represents the dominance of a well-fed, white, anglosaxon, *aristocat* over the fallen flag of the peoples whose emblem used to be the African Lion. The position of the statue's arm with its Christianized scepter dominating a "wild lion" (the African diaspora) shows how the lion has been tamed into submission throughout the world by the prowess of the mighty, aristocratic Queen of England using the ingenuity of "the civilized English diaspora."  
+The depiction of Queen Victoria in Victoria Park, Kitchener, ON, CA is a mere instance of how deeply racism is baked into our society. The statue emblematically represents the dominance of a well-fed, white, anglosaxon, *aristocat* over the fallen flag of the peoples whose emblem used to be the African Lion. The position of the statue's arm with its Christianized scepter dominating a "wild lion" (the African diaspora) shows how the lion has been tamed into submission throughout the world by the prowess of the mighty, aristocratic Queen of England using the ingenuity of "the civilized English diaspora."  
 
-![Queen Victoria II Statue](https://whoacanada.files.wordpress.com/2011/05/victoriapark3.jpg)
+![Queen Victoria Statue](https://whoacanada.files.wordpress.com/2011/05/victoriapark3.jpg)
 
 
 The cannon placed in front of the lion is reminiscent of a mercantile slave ship's cannons! This cannon is pointed at the face of drivers coming upto the bend to "warn" them of their inferior position and to submit to their master - the crown of England. 
@@ -26,7 +26,4 @@ Do you now understand the form of racism that is systematically embedded into ou
 
 ---
 
-#SS #NotMyQueen #EndColonialism 
-
-
-![why black lives matter](https://cdn.vox-cdn.com/thumbor/pGTW7V-cKoyt7I72N-2qUmKRU4Y=/0x0:840x300/720x0/filters:focal(0x0:840x300):format(webp):no_upscale()/cdn.vox-cdn.com/uploads/chorus_asset/file/4027016/all%20lives%20matter%20cartoon.png)
+#SS #NotMyQueen #EndColonialism
