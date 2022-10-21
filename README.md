@@ -26,7 +26,7 @@ Do you now understand the form of racism that is systematically embedded into ou
 
 ---
 
-#SS #NotMyQueen :middle_finger: :smile: :middle_finger: : 
+#SSS #NotMyQueen #NotMyKing 
 
   - See: https://www.cbc.ca/news/canada/kitchener-waterloo/10-facts-about-the-mystery-of-the-missing-kaiser-s-bust-1.2740729
   
