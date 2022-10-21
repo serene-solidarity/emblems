@@ -1,5 +1,5 @@
 # Emblems
-The emblems we currently venerate demean all lives especially, lives of non-christian, black, indigenous and coloured peoples!
+The emblems we currently venerate demean all lives especially, lives of non-christian, black, indigenous and peoples of colour!
 
 ## Especially Black Lives Matter
 
@@ -10,7 +10,7 @@ The depiction of Queen Victoria in Victoria Park, Kitchener, ON, CA is a mere in
 
 The cannon placed in front of the lion is reminiscent of a mercantile slave ship's cannons! This cannon is pointed at the face of drivers coming upto the bend to "warn" them of their inferior position and to submit to their master - the crown of England. 
 
-Prior to the British Empire's conquest of Canada the city of Kitchener was called Berlin. It hosted the erstwhile German Empire's emblems with the bust of Kaiser Wilhelm I displayed in what is now called Victoria Park as shown in the picture below. 
+Prior to the British Empire's conquest of Canada the city of Kitchener was called Berlin. It hosted the erstwhile German Empire's emblems with the bust of Kaiser Wilhelm the First, displayed in what is now called Victoria Park as shown in the picture below. 
 
 ![Kaiser Wilhelm I](https://i.cbc.ca/1.2743092.1408642933!/fileImage/httpImage/image.jpg_gen/derivatives/original_1180/kaiser-s-bust.jpg) 
 
@@ -20,7 +20,7 @@ If the racist German Empire's emblems were removed and the city was renamed Kitc
 Sadly Berlin, Ontario Canada was renamed Kitchener, Ontario, Canada in recognition of **[the genocidal Kitchener of Khartoum](https://en.wikipedia.org/wiki/Herbert_Kitchener,_1st_Earl_Kitchener)** . Our city venerates his murderous conquests in North and East Africa that promoted concertration camps and slavery.  
 
 
-o where is the racism you ask? It is embedded all around us in each and every system from the urban design and naming of cities to the money we are beholden to. The values we enshrine in our public spaces and currencies represent the truth we hold in our individual as well as our collective conscience! The inglorious truth about Canada is that we are racist to the core against peoples who are not-christian and not-white. 
+Where is the racism you ask? It is embedded all around us in each and every system from the urban design and naming of cities to the money we are beholden to. The values we enshrine in our public spaces and currencies represent the truth we hold in our individual as well as our collective conscience! The inglorious truth about Canada is that we are racist to the core against peoples who are not-christian and not-white. 
 
 Do you now understand the form of racism that is systematically embedded into our day-to-day use of emblems on our fiat currencies and public installations that venerate genocide?
 
