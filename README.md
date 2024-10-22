@@ -1,6 +1,6 @@
 # Emblems
 
-The emblems we currently venerate demean all lives especially, lives of non-christian, black, indigenous and peoples of colour!
+The emblems we currently venerate demean all lives especially, the lives of non-christian, black, indigenous and peoples of colour!
 
 ## Especially Black Lives Matter
 
